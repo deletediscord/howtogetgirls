@@ -1,5 +1,5 @@
 # howtogetgirls
-#s/o emp7
+s/o la emp7
 
 <br> Étape 1: repérer sa proie sur les nombreux serveurs communautaires (de préférence éviter les pseudos gras, les characters en début de pseudo)
 <br>  Étape 2: envoyer un message privé à la femelle pour l'aborder (salut, ça va, tu fais quoi ?) (de préférence parler comme ino avec un langage soigné et ponctué)
